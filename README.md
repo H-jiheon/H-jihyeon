@@ -1,2 +1,5 @@
 Hyeon / Jihyeon Hyeong
-ㅇ
+
+My values
+
+How i work
